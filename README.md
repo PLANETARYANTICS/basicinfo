@@ -1,2 +1,2 @@
-# basicinfo
+# basic info
 &lt;3
