@@ -1,2 +1,2 @@
 # basic info
-&lt;3
+&lt;No. 1 Ponytown Lurker
